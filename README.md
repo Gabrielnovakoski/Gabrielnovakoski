@@ -1,4 +1,4 @@
-hey I’m @Gabrielnovakoski
+hey I’m @Gabrielrenato
 - 👀\ I’m interested in studiyng
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on projects
